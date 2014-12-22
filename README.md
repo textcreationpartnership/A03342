@@ -37,7 +37,275 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
+1. TO THE RIGHT HONORABLE, HENRIE EARLE OF HVNTINGDON, LORD HASTINGS, HVNGERFORD, BOTTREAVX, MOLINS and MOYLES, Lord Lieutenant of the Counties of LEICESTER, and RVFLAND, my very singular good LORD.
+
+1. TO THE GODLY READER, WHETHER MINISTER, OR PRIVATE CHRISTIAN.
+
+1. A Table of some principall Points that are handled in these Lectures.
+Abstinence.See Fasting.Admonition.See Reproofe. Adoption.A.NO man can worship God aright till he hau
+    _ B.
+
+    _ C.
+
+    _ D.
+
+    _ E.
+
+    _ F.
+
+    _ G.
+
+    _ H.
+
+    _ I.
+
+    _ K.
+
+    _ L.
+
+    _ M.
+
+    _ N.
+
+    _ O.
+
+    _ P.
+
+    _ Q.
+
+    _ R.
+
+    _ S.
+
+    _ T.
+
+    _ V.
+
+    _ W.
+
+    _ Y.
+
+    _ Z.
+
+1. Seuerall places of Scripture opened and applyed in this Treatise.
+
 #####Body#####
+THE FIRST LECTURE, ON IANVARIE XXXI. MDCVIII.IOH. IIII. X.Iesus answered, and said vnto her; If thou
+    _ THE FIRST LECTURE, ON IANVARIE XXXI. MDCVIII.
+
+    _ Lecture the second, Feb. 7. 1608.
+
+    _ Lecture the third, Feb. 14. 1608. IOHN IIII. X.
+
+    _ Lecture the fourth, Feb. 21. 1608. IOHN IIII. X.
+
+    _ Lecture the fift, Feb. 28. 1608.
+THE SIXT LECTVRE, ON MARCH VII. MDCVIII.IOH. IIII. XI, XII.The woman saith vnto him, Sir, thou hast 
+    _ THE SIXT LECTVRE, ON MARCH VII. MDCVIII.
+
+    _ Lecture the seuenth, March 14. 1608. IOHN IIII. XI. XII.
+
+    _ Lecture the eight, March 21. 1608. IOHN IIII. XII.
+THE NINTH LECTVRE, ON MARCH XXVIII. MDCIX.IOH. IIII. XIII, XIIII.Iesus answered, and said vnto her, 
+    _ THE NINTH LECTVRE, ON MARCH XXVIII. MDCIX.
+
+    _ Lecture the tenth, Aprill 4. 1609. IOHN IIII. XIIII.
+
+    _ Lecture the eleuenth. Aprill 11. 1609.
+THE TWELFTH LECTVRE, ON APRILL, XXV. MDCIX.IOH. IIII. XV.The Woman faith vnto him, Sir, giue me this
+    _ THE TWELFTH LECTVRE, ON APRILL, XXV. MDCIX.
+THE THIRTEENTH. LECTVRE ON MAY II. MDCIX.IOHN IIII. XVI, XVII, XVIII.Iesus saith vnto her, Goe, call
+    _ THE THIRTEENTH. LECTVRE ON MAY II. MDCIX.
+
+    _ Lecture the foureteenth, May 30. 1609.
+
+    _ Lecture the fifteenth, Iune 6. 1609.
+
+    _ Lecture the sixteenth, Iune 13. 1609.
+
+    _ Lecture the seuenteenth, Iune 20. 1609.
+
+    _ Lecture the eighteenth, Iune 27. 1609.
+
+    _ Lecture the nineteenth, Iuly 4. 1609.
+
+    _ Lecture the twentieth, Iuly 11. 1609.
+
+    _ Lecture the One and twenty, August 8. 1609.
+THE TWO AND TWENTIETH LECTVRE, ON AVGVST, XV. MDCIX.IOH. IIII. XIX, XX.The Woman saith vnto him, Sir
+    _ THE TWO AND TWENTIETH LECTVRE, ON AVGVST, XV. MDCIX.
+
+    _ Lecture the three and twenty, August 22. 1609.
+THE FOVRE AND TWENTIETH LECTVRE, ON AVGVST, XXIX. MDCIX.IOH. IIII. XX.Our Fathers worshipped in this
+    _ THE FOVRE AND TWENTIETH LECTVRE, ON AVGVST, XXIX. MDCIX.
+
+    _ Lecture the fiue and twentieth, September 12. 1609.
+
+    _ Lecture the sixe and twentieth, September 19. 1609.
+
+    _ Lecture the seuen and twentieth, October 3. 1609.
+
+    _ Lecture the eight and twentieth, October. 10. 1609.
+
+    _ Lecture the nine and twentieth, October 17. 1609.
+
+    _ Lecture the thirtieth, October 24. 1609.
+
+    _ Lecture the one and thirtieth, Nouember 7. 1609.
+THE TWO AND THIRTIETH LECTVRE, ON NOVEMBER XXI. MDCIX.IOH. IIII. XXI, XXII, XXIII.Iesus said vnto he
+    _ THE TWO AND THIRTIETH LECTVRE, ON NOVEMBER XXI. MDCIX.
+
+    _ Lecture the three and thirtieth, Nouember 28. 1609.
+
+    _ Lecture the foure and thirtieth, December 5. 1609.
+
+    _ Lecture the fiue and thirtieth, December 12. 1609.
+
+    _ Lecture the sixe and thirtieth, December 26. 1609.
+
+    _ Lecture the seuen and thirtieth, Ianuary 2. 1609.
+
+    _ Lecture the eight and thirtieth, Ianuary 9. 1609.
+THE NINE AND THIRTIETH LECTVRE, ON IANVARY, XXIII. MDCIX.IOH. IIII. XXIII, XXIIII.But the houre comm
+    _ THE NINE AND THIRTIETH LECTVRE, ON IANVARY, XXIII. MDCIX.
+
+    _ Lecture the fortieth, Ianuary 30. 1609.
+
+    _ Lecture the one and fortieth, February 13. 1609. IOHN IIII. XXIII.
+
+    _ Lecture the two and fortieth, February 20. 1609.
+THE THREE AND FORTIETH LECTVRE, ON FEBRVARY XXVII. MDCIX.IOH. IIII. XXV, XXVI.The Woman saith vnto h
+    _ THE THREE AND FORTIETH LECTVRE, ON FEBRVARY XXVII. MDCIX.
+
+    _ Lecture the foure and fortieth, March 6. 1609. IOHN IIII. XXV.
+THE FIVE AND FORTIETH LECTVRE, ON MARCH, XIII. MDCIX.IOH. IIII. XXVI.Iesus saith vnto her, I that sp
+    _ THE FIVE AND FORTIETH LECTVRE, ON MARCH, XIII. MDCIX.
+THE SIXE AND FORTIETH LECTVRE, ON MARCH, XX. MDCIX.IOH. IIII. XXVII.And vpon this came his Disciples
+    _ THE SIXE AND FORTIETH LECTVRE, ON MARCH, XX. MDCIX.
+
+    _ Lecture the seuen and fortieth, March 27. 1610. IOHN IIII. XXVII.
+
+    _ Lecture the eight and fortieth, Aprill 3. 1610. IOHN IIII. XXVII.
+THE NINE AND FORTIETH LECTVRE, ON APRILL, X. MDCX.IOH. IIII. XXVIII, XXIX, XXX.The Woman therefore l
+    _ THE NINE AND FORTIETH LECTVRE, ON APRILL, X. MDCX.
+
+    _ Lecture the fiftieth, Aprill 17. 1610. IOHN IIII. XXVIII.
+
+    _ Lecture the one and fiftieth, Aprill 24. 1610. IOHN IIII. XXVIII, XXIX.
+
+    _ Lecture the two and fiftieth, May 8. 1610. IOHN IIII. XXIX, XXX.
+
+    _ Lecture the three and fiftieth, Iune 12. 1610. IOHN IIII. XXIX.
+
+    _ Lecture the foure and fiftieth, Iune 19. 1610. IOHN IIII. XXX.
+THE FIVE AND FIFTIETH LECTVRE, ON IVNE, XXVI. MDCX.IOH. IIII. XXXI, XXXII, XXXIII, XXXIV.In the mean
+    _ THE FIVE AND FIFTIETH LECTVRE, ON IVNE, XXVI. MDCX.
+
+    _ Lecture the sixe and fiftieth, Iuly 3. 1610. IOHN IIII. XXXII, XXXIV.
+
+    _ Lecture the seuen and fiftieth, Iuly 10. 1610. IOHN IIII. XXXII, XXXIV.
+
+    _ Lecture the eight and fiftieth, Iuly 17. 1610. IOHN IIII. XXXII, XXXIV.
+
+    _ Lecture the fiftieth ninth, Iune 24. 1610. IOHN IIII. XXXII—XXXIV.
+THE SIXTIETH LECTVRE, ON IVLY, XXXI. MDCX.IOH. IIII. XXXV—XXXVIII.Say not yee there are yet foure mo
+    _ THE SIXTIETH LECTVRE, ON IVLY, XXXI. MDCX.
+
+    _ The sixtie one Lecture. August 7. 1610. IOHN IIII. XXXVI.
+
+    _ The sixtie two Lecture. August 21. 1610. IOHN IIII. XXXVII, XXXVIII.
+
+    _ Lecture the sixty third. August 28. 1610. IOHN IIII. XXXVII, XXXVIII.
+
+    _ Lecture the sixty fourth. September 4. 1610. IOHN IIII. XXXVII, XXXVIII.
+
+    _ Lecture the sixty fifth, September 11. 1610. IOHN IIII. XXXVI—XXXVIII.
+
+    _ Lecture the sixty sixth. September 18. 1610. IOHN IIII. XXXVI—XXXVIII.
+THE SIXTIE SEVENTH LECTVRE, ON SEPTEMBER, XXV. MDCX.IOH. IIII. XXXIX, XL.And many of the Samaritans 
+    _ THE SIXTIE SEVENTH LECTVRE, ON SEPTEMBER, XXV. MDCX.
+
+    _ Lecture the sixty eighth. October 2. 1610. IOHN IIII. XL.
+
+    _ Lecture the sixty ninth. October 16. 1610. IOHN IIII. XL.
+THE SEVENTIETH LECTVRE, ON OCTOBER XXIII. MDCX.IOH. IIII. XLI, XLII.And many more beleeued, because 
+    _ THE SEVENTIETH LECTVRE, ON OCTOBER XXIII. MDCX.
+
+    _ Lecture the seuentie one. Nouember 13. 1610. IOHN IIII. XLII.
+
+    _ Lecture the seuentie two. Nouember 20. 1610. IOHN IIII. XLII.
+
+    _ Lecture the seuentie three. Nouember 27. 1610. IOHN IIII. XLII.
+
+    _ Lecture the seuentie foure. December 4. 1610. IOHN IIII. XLII.
+
+    _ Lecture the seuentie fiue. December 11. 1610. IOHN IIII. XLII.
+
+    _ Lecture the seuentie sixe. December 18. 1610. IOHN IIII. XLII.
+THE SEVENTIE SEVEN LECTVRE, ON IANVARY XV. MDCX.IOH. IIII. XLIII, XLIIII, XLV.Now after two dayes, h
+    _ THE SEVENTIE SEVEN LECTVRE, ON IANVARY XV. MDCX.
+
+    _ Lecture the seuentie eight. Ianuarie 22. 1610. IOHN IIII. XLIII. XLIIII.
+
+    _ Lecture the seuentie nine. Ianuary 29. 1610. IOHN IIII. XLIIII.
+
+    _ Lecture the eightie. Februarie 12. 1610. IOHN IIII. XLIIII.
+
+    _ Lecture the eightie one. Februarie 19. 1610. IOHN IIII. XLV.
+
+    _ Lecture the eighty two. February 26. 1610. IOHN IIII. XLV.
+THE EIGHTIE THIRD LECTVRE, ON MARCH V. MDCX.IOHN IIII. XLVI, XLVII.So Iesus came againe into Cana of
+    _ THE EIGHTIE THIRD LECTVRE, ON MARCH V. MDCX.
+
+    _ Lecture the eightie foure. March 12. 1610. IOHN IIII. XLVI, XLVII.
+
+    _ Lecture the eightie fiue. March 19. 1610. IOHN IIII. XLVII.
+
+    _ Lecture the eightie sixe. Aprill 2. 1611. IOHN IIII. XLVII.
+
+    _ Lecture the eighty seuen. Aprill 9. 1611. IOHN IIII. XLVII.
+THE EIGHTIE EIGHT LECTVRE, ON APRILL XXIII. MDCXI.IOHN IIII. XLVIII, XLIX, L.Then said Iesus vnto hi
+    _ THE EIGHTIE EIGHT LECTVRE, ON APRILL XXIII. MDCXI.
+
+    _ Lecture the eightie nine. Iune 11. 1611. IOHN IIII. XL VIII—L.
+
+    _ Lecture the ninetieth. Iune 18. 1611. IOHN IIII. XLVIII.
+
+    _ Lecture the ninetie one. Iune 25. IOHN IIII. XLVIII.
+
+    _ Lecture the ninetie two. Iuly 2. 1611. IOHN IIII. XLVIII.
+THE NINETIE THIRD LECTVRE, ON IVLY XVI. MDCXI.IOHN IIII. XLIX, L.The Noble man saith vnto him, Sir, 
+    _ THE NINETIE THIRD LECTVRE, ON IVLY XVI. MDCXI.
+
+    _ Lecture the ninetie fourth. Iuly 23. 1611. IOHN IIII. XLIX, L.
+
+    _ Lecture the ninetie fifth. Iuly 10. 1611. IOHN IIII. XLIX, L.
+
+    _ Lecture the ninetie sixt. August 11. 1611. IOHN IIII. L.
+
+    _ Lecture the ninetie seuenth. August 20. 1611. IOHN IIII. L.
+
+    _ Lecture the ninetie eighth. August 27. 1611. IOHN IIII. L.
+
+    _ Lecture the ninetie ninth. Septemb. 3. 1611. IOHN IIII. L.
+
+    _ Lecture the hundredth. Septemb. 10. 1611. IOHN IIII. L.
+
+    _ Lecture the hundred and one. Septemb. 17. 1611. IOHN IIII. L.
+
+    _ Lecture the hundred and two. September 24. 1611. IOHN IIII. L.
+
+    _ Lecture the hundred and three. October 1. 1611. IOHN IIII. L.
+
+    _ Lecture the hundred and fourth. October 8. 1611. IOHN IIII. L.
+
+    _ Lecture the hundred and fiue. October 15. 1611. IOHN IIII. L.
+THE HVNDRED AND SIXTH LECTVRE, ON OCTOBER XXII. MDCXI.IOHN IIII. L.And the man belieued the word tha
+    _ THE HVNDRED AND SIXTH LECTVRE, ON OCTOBER XXII. MDCXI.
+THE HVNDRED AND SEVENTH LECTVRE, ON OCTOBER XXIX. MDCXI.IOHN IIII. LI, LII, LIII.And as he was now g
+    _ THE HVNDRED AND SEVENTH LECTVRE, ON OCTOBER XXIX. MDCXI.
+
+    _ Lecture the hundred and eighth. Nouember 12. 1611. IOHN IIII. LII, LIII.
 
 **Types of content**
 
